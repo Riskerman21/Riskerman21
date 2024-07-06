@@ -1,5 +1,1 @@
 - 👋 Hi, I’m @Riskerman21
-- 👀 I’m interested in html5
-- 🌱 I’m currently learning html5
-- 💞️ I’m looking to collaborate on html5
-- 📫 How to reach me html5 lol
